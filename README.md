@@ -3,6 +3,9 @@ I thought it would be interesting to pull together a list of people from social 
 
 Just a bit of fun really. Please add your name below and I'll hopefully meet you in a couple of weeks time.
 
+This list will be deleted the weekend before CG18 and made in to a Tshirt. The mission will then be to tick off everyone's names from the Tshirt. 
+Even if I have already met you in real life, please add your name as the more names the better. 
+
 
 | Name                         | Twitter Handle    |
 |------------------------------|-------------------|
