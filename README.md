@@ -18,3 +18,4 @@ Just a bit of fun really. Please add your name below and I'll hopefully meet you
 | Dan Patching                 | [@OptimisticCoder](https://twitter.com/OptimisticCoder)  |
 | Niels Hartvig                | [@thechiefunicorn](https://twitter.com/thechiefunicorn)  |
 | Dirk De Grave                | [@netaddicts](https://twitter.com/netaddicts)|
+| Tim Payne                    | [@attack_monkey](https://twitter.com/attack_monkey)|
