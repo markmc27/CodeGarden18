@@ -20,3 +20,6 @@ Just a bit of fun really. Please add your name below and I'll hopefully meet you
 | Dirk De Grave                | [@netaddicts](https://twitter.com/netaddicts)|
 | Tim Payne                    | [@attack_monkey](https://twitter.com/attack_monkey)|
 | Frederik Raabye              | [@fraabye](https://twitter.com/fraabye)|
+| Marcin Zajkowski             | [@zajkowskimarcin](https://twitter.com/zajkowskimarcin)|
+
+
