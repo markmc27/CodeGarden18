@@ -22,5 +22,4 @@ Just a bit of fun really. Please add your name below and I'll hopefully meet you
 | Frederik Raabye              | [@fraabye](https://twitter.com/fraabye)|
 | Marcin Zajkowski             | [@zajkowskimarcin](https://twitter.com/zajkowskimarcin)|
 | Georgs Bormanis              | [@GeorgsMars](https://twitter.com/GeorgsMars)|
-
-
+| Jeavon Leopold               | [@crumpled_jeavon](https://twitter.com/crumpled_jeavon)|
