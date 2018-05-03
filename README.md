@@ -42,4 +42,4 @@ The list will close on 7th May - This allows the printers plenty time to print t
 | Rune Strand                  | [@hemraker](https://twitter.com/hemraker) |
 | Ravi Motha                   | [@ravimotha](https://twitter.com/ravimotha) |
 | Hendy Racher                 | [@hendyracher](https://twitter.com/hendyracher) |
-| Jo Humphrey                  | [@precisioncoding](https://twitter.com/precisioncoding) |
+| Jon Humphrey                  | [@precisioncoding](https://twitter.com/precisioncoding) |
