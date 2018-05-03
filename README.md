@@ -50,4 +50,4 @@ The list will close on 7th May - This allows the printers plenty time to print t
 | Anders Bjerner               | [@abjerner](https://twitter.com/abjerner) |
 | Søren Kottal                 | [@skttl](https://twitter.com/skttl) |
 | Marc Love                    | [@marclove77](https://twitter.com/marclove77) |
-
+| Damiaan Peeters              | [@dampeebe](https://twitter.com/dampeebe) |
