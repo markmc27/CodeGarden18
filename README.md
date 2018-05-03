@@ -32,3 +32,4 @@ Even if I have already met you in real life, please add your name as the more na
 | Eric Frost                   | [@Iam_MrFreeze](https://twitter.com/Iam_MrFreeze) |
 | Nik                          | [@HotChilliLtd](https://twitter.com/HotChilliLtd) |
 | Rasmus Fjord                 | [@rasmusfjord](https://twitter.com/Rasmusfjord) |
+| Jesper Mayntzhusen           | [@JesperMayn](https://twitter.com/JesperMayn) |
