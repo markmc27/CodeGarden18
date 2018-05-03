@@ -6,6 +6,9 @@ Just a bit of fun really. Please add your name below and I'll hopefully meet you
 This list will be deleted the weekend before CG18 and made in to a Tshirt. The mission will then be to tick off everyone's names from the Tshirt. 
 Even if I have already met you in real life, please add your name as the more names the better. 
 
+## UPDATE
+The list will close on 7th May - This allows the printers plenty time to print this epic Tshirt. 
+
 
 | Name                         | Twitter Handle    |
 |------------------------------|-------------------|
