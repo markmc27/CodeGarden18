@@ -44,4 +44,5 @@ The list will close on 7th May - This allows the printers plenty time to print t
 | Hendy Racher                 | [@hendyracher](https://twitter.com/hendyracher) |
 | Jon Humphrey                  | [@precisioncoding](https://twitter.com/precisioncoding) |
 | Morten Bock                  | [@mortenbock](https://twitter.com/mortenbock) |
+| Emma Burstow                  | [@emaburst](https://twitter.com/emaburst) |
 
