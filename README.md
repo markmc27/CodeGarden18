@@ -31,3 +31,4 @@ Even if I have already met you in real life, please add your name as the more na
 | Poornima Nayar               | [@poornimanayar](https://twitter.com/poornimanayar) |  
 | Eric Frost                   | [@Iam_MrFreeze](https://twitter.com/Iam_MrFreeze) |
 | Nik                          | [@HotChilliLtd](https://twitter.com/HotChilliLtd) |
+| Rasmus Fjord                 | [@rasmusfjord](https://twitter.com/Rasmusfjord) |
