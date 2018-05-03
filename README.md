@@ -36,3 +36,4 @@ Even if I have already met you in real life, please add your name as the more na
 | Ed Parry                     | [@edparry](https://twitter.com/edparry) |
 | Mikkel Holck Madsen          | [@mikkelhm](https://twitter.com/mikkelhm) |
 | Lotte Pitcher                | [@lottepitcher](https://twitter.com/lottepitcher) |
+| Rune Strand                  | [@hemraker](https://twitter.com/hemraker) |
